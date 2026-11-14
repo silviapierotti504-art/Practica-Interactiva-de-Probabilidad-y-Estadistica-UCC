@@ -1,1 +1,0 @@
-# Practica-Interactiva-de-Probabilidad-y-Estadistica-UCC
